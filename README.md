@@ -54,4 +54,3 @@ A motivated final year computer science student who has embraced Agile learning 
 ## Interests and Achievements
 - Enjoy cycling in the park during free time.
 - Actively learning new programming languages and technologies.
-- Provide assistance in supporting family member's wellbeing and mental health.
